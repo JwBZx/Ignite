@@ -1,0 +1,2 @@
+# Ignite
+Welcome to Ignite! This is a GitHub Repository that I am making so that I can place any inspiration (like app, game, software, and web ideas, or anything else) that I got from Ignite 2015 (a weekend youth camp that is happening this weekend from November 6th-8th!). If I get any inspiration for any projects, I will be sure to update this repository with it! Thank You for checking out this Repository/Project and God Bless! ---Jonathan Bruce, @JwBZx (:octocat: :+1:) :crown: :-1:
