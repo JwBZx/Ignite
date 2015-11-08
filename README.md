@@ -21,3 +21,5 @@ My Tumblr/Blog: jwbzx.tumblr.com
 My Company's Website: soderminal.weebly.com
 
 My Company's Tumblr/Blog: soderminal.tumblr.com
+- - - - - - - - - -
+Update on November 8th, 2015: #Ignite (#Ignite2015) is over, so now it's time to update this repository with all of the inspiration, Bible Verses, message notes, and everything else that I got from Ignite 2015!
